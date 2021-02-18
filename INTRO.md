@@ -1,1 +1,1 @@
-A short introduction about your team
+Our team strives to be the voice of the community . We see a great lack of SRs listening to the community its opinion and acting towards it. We as CommunitySR think its time for a change within the SR sphere. If we are chosen SR and are able to vote on proposals we will always let our community vote prior and vote towards that outcome. This SR is completly communit driven but powered by KODX 
